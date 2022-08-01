@@ -1,2 +1,2 @@
-My name is Sally Song
-she is great
+My name is Sally
+Sally is awesome
